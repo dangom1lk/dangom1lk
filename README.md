@@ -1,4 +1,4 @@
-
+usually offtab, always w2i
 
 <!---
 dangom1lk/dangom1lk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
