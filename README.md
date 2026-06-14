@@ -1,5 +1,5 @@
 <div align="center">
-  <a href="https://hits.sh/github.com/dangom1lk/"><img alt="Hits" src="https://hits.sh/github.com/dangom1lk.svg?style=flat-square&label=orchids&extraCount=1000&color=7F7F7F&labelColor=4D6D43"/></a>
+  <a href="https://hits.sh/github.com/dangom1lk/"><img alt="Hits" src="https://hits.sh/github.com/dangom1lk.svg?style=flat-square&label=orchids&extraCount=500&color=7F7F7F&labelColor=4D6D43"/></a>
 
 ###
 
