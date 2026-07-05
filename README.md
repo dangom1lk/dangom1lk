@@ -1,2 +1,2 @@
 <div align="center">
-  <img src="https://file.garden/Z02xzCuAz2yPo5Ex/mfy-main-gh2"/>
+  <img src="https://file.garden/Z02xzCuAz2yPo5Ex/mfy-main-ghh"/>
