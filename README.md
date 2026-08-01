@@ -5,4 +5,4 @@
   
 <p align="center"> <img src=https://komarev.com/ghpvc/?username=dangom1lk&color=A299AC&style=flat-square&label=whenever+i+wake,+she+peels+them+for+me+again>
 
-[atabook](https://miru.atabook.org)　　[pronouns.cc](https://pronouns.cc/@dangomilk)
+[rentry](https://rentry.co/pourtrait)ㅤㅤ[atabook](https://miru.atabook.org)ㅤㅤ[pronouns.cc](https://pronouns.cc/@dangomilk)
